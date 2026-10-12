@@ -6,6 +6,8 @@
 
 ![IMG_4902.jpg](/img/user/attachments/IMG_4902.jpg)
 
+`Click on any image to expand `
+
 
 A collection of photographs, places, people, and the memories attached to them.
 
@@ -15,6 +17,6 @@ This is a place to revisit both, follow the occasional rabbit hole, and see wher
 
 A little more light breaks out of the shadows and finds its way into my garden.
 
-`Click on any image to expand `
+
 
 [[My garden/San Francisco Peaks\|San Francisco Peaks]]
