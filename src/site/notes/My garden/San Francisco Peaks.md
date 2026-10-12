@@ -9,4 +9,6 @@
 
 Coconino National Forest
 
+`Click on image to expand `
+
 [[Homepage\|Return to the Garden]]
