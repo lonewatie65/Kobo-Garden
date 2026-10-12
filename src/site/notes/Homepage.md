@@ -13,6 +13,8 @@ Some photographs have stories. Others simply capture a moment worth remembering.
 
 This is a place to revisit both, follow the occasional rabbit hole, and see where the connections lead.
 
-A little more light breaks out of the shadows and finds its way into my garden. 
+A little more light breaks out of the shadows and finds its way into my garden.
+
+`Click on any image to expand `
 
 [[My garden/San Francisco Peaks\|San Francisco Peaks]]
